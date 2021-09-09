@@ -1,4 +1,4 @@
-# Thursday 9/Sep
+# Thu 9/Sep
 
 10AM: Monika arrives
 
